@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @PraveenStakez
 - 👀 I’m interested in Music
 - 🌱 I’m currently a Music Producer
-- 💞️ I’m looking to collaborate on Music
+- 💞️ Hola Guys
 - 📫 Reach me At Itunes
 
 <!---
